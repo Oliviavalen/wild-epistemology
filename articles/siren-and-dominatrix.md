@@ -1,4 +1,4 @@
-**[The Siren and the Dominatrix](https://tinyurl.com/2ar77wwu)** ← Read original here.
+Original article: **[The Siren and the Dominatrix // Why Men Visit Dominatrices and Seek Submission](https://tinyurl.com/2ar77wwu)**
 
 # 
 
