@@ -9,23 +9,32 @@ Published articles are available on Substack. Repo collection features working d
 (NOTE: I will update links to lead to repo files as time allows. For now, everything except **The King Under the Mountain** links to my Substack publication.)
 
 ### Free for Everyone Articles
-*   **[The Siren and the Dominatrix](https://tinyurl.com/2wwbey5p)** — Why men seek submission and negotiated power dynamics.
-*   **[The Tortoise AND the Hare](https://tinyurl.com/y8ctm9m3)** — High-performance habits and strategic recovery.
-*   **[Down the Rabbit Hole](https://tinyurl.com/4f9hn55r)** — The many ways opportunity presents itself.
-*   **[La Famiglia è Tutto, o Che Fortuna](https://tinyurl.com/y85wwfyc)** — Legacy, vitality, and the art of living.
-*   **[Sacrifice](https://tinyurl.com/4rfpxdj5)** — Limitation, fulfillment, and the myth of compromise.
-*   **[The King Under the Mountain](king-under-mountain.md)** — 
+*   **[The Siren and the Dominatrix](https://tinyurl.com/2wwbey5p)** — Substack
+*   **[Siren-and-Dominatrix](siren-and-dominatrix.md)** 
+*   **[The Tortoise AND the Hare](https://tinyurl.com/y8ctm9m3)** — Substack
+*   **[Tortoise-AND-Hare](tortoise-AND-hare.md)**
+*   **[Down the Rabbit Hole](https://tinyurl.com/4f9hn55r)** — Substack
+*   **[Down-the-Rabbit-Hole](tortoise-AND-Hare.md)**
+*   **[La Famiglia è Tutto, o Che Fortuna](https://tinyurl.com/y85wwfyc)** — Substack
+*   **[Lucky-Italy](https://tinyurl.com/y85wwfyc)**
+*   **[Sacrifice](https://tinyurl.com/4rfpxdj5)** — Substack
+*   **[Sacrifice](sacrifice.md)**
+*   **The King Under the Mountain** — Substack
+*   **[King-Under-Mountain](king-under-mountain.md)** — Substack
 
 ### Free for Free Subscribers 
 
 
 
 ### Founding Plan / Antechamber
-(NOTE: I *may* decide to include these articles for free to GitHub users.)
+(NOTE: I may decide to include these articles for free to GitHub users.)
 
-*   **The Psychology of Power Exchange** — Desire, repression, and sustainable passion.
-*   **Integrating Dynamics into Legacy-Oriented Lifestyles** — When you're meant to have it all
-*   **The Itinerary** — System mechanics for recovering mental bandwidth.
+*   **[The Psychology of Power Exchange](https://tinyurl.com/42x66yfd)** — Substack
+*   **[The Psychology of Power Exchange]
+*   **[Integrating Dynamics into Legacy-Oriented Lifestyles](https://tinyurl.com/yc6cxbr4)** — Substack
+*   **[Integrating Dynamics into Legacy-Oriented Lifestyles]
+*   **[The Itinerary](https://tinyurl.com/52sb24pz)** — Substack
+*   **[The-Itinerary]
 *   
 
 
