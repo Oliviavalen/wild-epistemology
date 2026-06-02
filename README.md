@@ -1,23 +1,22 @@
-# wild-epistemology
-Synthesizing separate disciplines into a clear blueprint for living.
+**You absolute legend!**
 
-This repository is a collection of short, bite-sized articles connecting the dots across philosophy, science, history, and psychology. No fluff, just direct frameworks designed to clear mental clutter and reframe how we look at life.
+Have a seat; you'll be here a while.
 
-## 📁 Article Index
+I'm not going to introduce myself — that's your mystery to unravel. Instead, I'll tell you that this place has pieces that no one else gets. More play, more personality, more candor, more confidence in your desire to pursue and enjoy the experience. If I'm being honest, it's not even that difficult of a challenge, but most people I know are too two-dimensional to take any interest in following something *unusual* that they come across, if they notice it at all.
 
-### Habits & Perspective
-*   **The Tortoise AND the Hare** — High-performance habits and strategic recovery.
-*   **Down the Rabbit Hole** — The many ways opportunity presents itself.
+## 📁 Working section title
 
-### Psychology & Myth
-*   **The Siren and the Dominatrix** — Why men seek submission and negotiated power dynamics.
-*   **The Psychology of Power Exchange** — Desire, repression, and sustainable passion.
-*   **The Itinerary** — System mechanics for recovering mental bandwidth.
+### Something goes here
+*   **something else** — talking a lot.
 
-### Philosophy & History
-*   **Sacrifice** — Limitation, fulfillment, and the myth of compromise.
-*   **La Famiglia è Tutto, o Che Fortuna** — Legacy, vitality, and the art of living.
+### Something goes here
+*   **something else** — what goes here.
+
+
+### Something might go here
+*   **something ekse** — y-o-u-r means YOUR.
 
 ---
+
 Signed,  
 Livia
