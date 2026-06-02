@@ -3,7 +3,7 @@ Why Men Visit Dominatrices and Seek Submission
 Olivia Valen
 Apr 01, 2026
 
-*No fluff. I write for easy reading with a conversational tone.*
+No fluff. I write for easy reading with a conversational tone.
 
 ***
 
