@@ -14,7 +14,7 @@ Published articles are available on Substack. Repo collection features working d
 *   **[Down the Rabbit Hole](https://tinyurl.com/4f9hn55r)** — The many ways opportunity presents itself.
 *   **[La Famiglia è Tutto, o Che Fortuna](https://tinyurl.com/y85wwfyc)** — Legacy, vitality, and the art of living.
 *   **[Sacrifice](https://tinyurl.com/4rfpxdj5)** — Limitation, fulfillment, and the myth of compromise.
-*   **The King Under the Mountain** — 
+*   **[The King Under the Mountain](king-under-mountain.md)** — 
 
 ### Free for Free Subscribers 
 
