@@ -67,9 +67,19 @@ If the king is sealed away with his knights, soldiers, or court, this refers to 
 
 *Symbolism is beautiful, but you don’t need it to understand the story.*
 
-Here is the essence of the allegory: the king is you. You were in your golden age while you were actively building your life. Once you fulfilled your primary ambitions, you lost your drive and stopped ruling from the king state-of-being. The sleeping king is you cruising on auto ever since. The prophecy says the king will awaken when he is needed most. Again, it’s you — waiting for meaning, purpose, vitality, or joy to return.
-But here’s where the real wisdom can be found: the Once and Future King never actually returns. He exists only as legend or as unfulfilled hope for the future.
-Except once.
+The king is you. You were in your golden age while you were actively building your life. Once you fulfilled your primary ambitions, you lost your drive and stopped ruling from the king state-of-being. You’ve just been going through the motions ever since. You will awaken once more if and when you find reason for meaning, purpose, vitality, or joy. Alternatively, something negative can cause your return: an illness, accident, or major loss of some sort, like loss of a loved one, resources, or status.
+
+So you must either summon your inner resolve with intention so you can enjoy the freedom of all the good things life has to offer; or wait for something bad to happen where you’re forced back onto the throne to restore order in your life; or worse, remain asleep and indifferent for the rest of your day.
+
+The motif shows us that the Once and Future King never actually returns. He exists only as a legend of the distant past or as unfulfilled hope for the future. Except once.
+
+That’s because those guys didn’t have the blueprint. You do.
+#
+NOTE:
+
+This next part may feel like a jump because I am usually emphasizing the humanities, social sciences, and the arts; tiptoeing around the spiritual and metaphysical; and am not yet incorporating a myriad of other topics such as science, medicine, or tech.
+
+I tried to include a more comprehensive review here, wrapped up in a neat little package with a pretty bow, but the topic is far too dense. All you need to know for now is this: hair is the proof of vitality on the outside, and the nervous system—specifically, nerve fluid—is the proof on the inside. This is an overlap of symbolism, metaphysics, science, and medicine.
 #
 **The Exception to the Rule: The Biochemical Resurrection**
 
