@@ -15,6 +15,7 @@
 *   a look inside the sysem
 *   random topics I enjoy
 *   update-to-date information for all platforms
+*   quests & rewards
 
 
 ### The following layer-links are available for discovery (as of 20260604):
