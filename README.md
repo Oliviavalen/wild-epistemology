@@ -40,10 +40,9 @@ There's no need to buy anything if all you're interested in is open-world discov
 * list of questions to help you navigate the OAV world
 * reward
 
+**3. [DONOT-README
 
 
-
-You'll also be able to piece together many of the intricate layers of my personality, who I am, stuff I like, things I do, all that stuff. Most people do not have access to this part of my system; they only see one or two levels.
 
 
 
