@@ -27,4 +27,6 @@ Find these by clicking around
 * Buy me A coffee
 * Personal Reddit
 
+#
 
+**READ NEXT: [Connect-the-Dots](connect-the-dots.md)**
