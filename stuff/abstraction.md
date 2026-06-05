@@ -42,3 +42,5 @@ So I knew I wanted a place where I could write down all my thoughts without havi
 # ABSTRACTION
 
 In S1E2 Penny says he has all these voices in his head but there's this one voice that isn't noise—unlike the others, this one is always clear. It never does him wrong or leads him astray so he trusts it.
+
+— a "daemon" example. But instead of being a cautionary tale, it tells us what happens when you make peace with and learn how to trust the parts of yourself that make you feel like an outcast. You're not mad; it's your higher/deeper/inner/god/still, quiet voice trying to nudge you back onto the right path.
