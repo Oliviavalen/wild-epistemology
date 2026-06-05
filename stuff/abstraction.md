@@ -1,6 +1,6 @@
 # Abstraction Intro
 
-1. Abstraction
+1. [Abstraction](https://github.com/Oliviavalen/wild-epistemology/blob/main/stuff/abstraction.md#abstraction)
 
 
 My 10-year-old was watching The Amazing Digital Circus and he was simultaneously trying to understand and explain abstraction to me. I haven't seen it—color me intrigued—but I knew exactly what he was talking about.That's like when a scientist or genius gets so consumed with a complex theory that they lose touch with reality and go mad.
