@@ -31,7 +31,7 @@ There's no need to buy anything if all you're interested in is open-world discov
 
 #
 ### Start Here
-**1. [Just-for-You](just-for-you.md)** 
+**1. [Just-for-You](1-just-for-you.md)** 
 * list of features and benefits available exclusively to GH users
 * list of currently available links to find 
 
