@@ -1,1 +1,1 @@
-**[The Itinerary](https://tinyurl.com/52sb24pz)** ← Original article
+**[The Itinerary](https://tinyurl.com/mpn9pa4nz)** ← Original article
