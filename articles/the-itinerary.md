@@ -1,1 +1,5 @@
-**[The Itinerary](https://tinyurl.com/mpn9pa4nz)** ← Original article
+Original article: **[The Itinerary](https://wildepistemology.substack.com/p/the-itinerary)** 
+
+#
+
+Adding more notes later.
