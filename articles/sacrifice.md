@@ -1,2 +1,4 @@
-Original article: **[Sacrifice // Limitation, Fulfillment, and the Myth of Compromise](https://tinyurl.com/4rfpxdj5)** 
+Original article: **[Sacrifice // Limitation, Fulfillment, and the Myth of Compromise](https://wildepistemology.substack.com/p/sacrifice)** 
 #
+
+Add notes later
