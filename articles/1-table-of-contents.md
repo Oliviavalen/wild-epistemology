@@ -22,15 +22,15 @@ Published articles are available on Substack. Repo collection features working d
 ### Free for Everyone Articles
 Links appear in chronological order by publishing date
 
-*   **[The Siren and the Dominatrix](https://tinyurl.com/2wwbey5p)** — Substack
+*   **[The Siren and the Dominatrix](https://tinyurl.com/4jvbhzcx)** — Substack
 *   **[Siren-and-Dominatrix](siren-and-dominatrix.md)** 
-*   **[The Tortoise AND the Hare](https://tinyurl.com/y8ctm9m3)** — Substack
+*   **[The Tortoise AND the Hare](hhttps://tinyurl.com/sxs83dr9)** — Substack
 *   **[Tortoise-AND-Hare](tortoise-AND-hare.md)**
-*   **[Down the Rabbit Hole](https://tinyurl.com/4f9hn55r)** — Substack
+*   **[Down the Rabbit Hole](https://tinyurl.com/45hphkvk)** — Substack
 *   **[Down-the-Rabbit-Hole](down-rabbit-hole.md)**
-*   **[La Famiglia è Tutto, o Che Fortuna](https://tinyurl.com/y85wwfyc)** — Substack
+*   **[La Famiglia è Tutto, o Che Fortuna](https://tinyurl.com/3upvbbuk)** — Substack
 *   **[Lucky-Italy](lucky-italy.md)**
-*   **[Sacrifice](https://tinyurl.com/4rfpxdj5)** — Substack
+*   **[Sacrifice](https://tinyurl.com/44zrvajr)** — Substack
 *   **[Sacrifice](sacrifice.md)**
 
 
