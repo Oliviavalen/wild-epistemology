@@ -1,4 +1,4 @@
-Original article: **[The Itinerary](https://wildepistemology.substack.com/p/the-itinerary)** 
+**Original article: [The Itinerary](https://wildepistemology.substack.com/p/the-itinerary)** // Recovering Mental Bandwidth
 
 #
 
