@@ -26,7 +26,7 @@ I'm still getting the hang of pull requests and figuring out how to open up a fi
 
 There's no need to buy anything if all you're interested in is open-world discovery. This is purely for the fun of it. I enjoy designing living systems and find fulfillment when people use them.
 
-**Lastly, please do not share this place with anyone who will not enjoy it. I don't want a few bad apples to force me to make it private. Quality over quantity, always.**
+**Lastly, please do not share this place with anyone who will not enjoy it.
 
 
 #
