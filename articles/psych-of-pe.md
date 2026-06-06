@@ -1,1 +1,1 @@
-Original article: **[The Psychology of Power Exchange // Desire, Repression, and Sustainable Passion](https://tinyurl.com/42x66yfd)**
+Original article: **[The Psychology of Power Exchange // Desire, Repression, and Sustainable Passion](https://wildepistemology.substack.com/p/the-psychology-of-power-exchange)**
