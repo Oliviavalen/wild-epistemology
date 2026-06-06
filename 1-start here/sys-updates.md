@@ -5,6 +5,8 @@
 1. Created temp MM logo
 2. MM publication description: "Beige on the outside, incandescent on the inside. Charmed and crafty DIYs."
 3. Olivia substack bio new profile description: WE: Disrupt the Mind → Broaden the Perspective → Embody the Unabridged Identity // MM: Heritage roots meets enchanted forest crafting // DITW: psychological concierge / identity architecture
+4. Fixed all the broken links in the articles folder
+5. Fixed all the broken links in the publication articles
 
 #
 **20260605**
