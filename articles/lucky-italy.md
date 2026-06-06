@@ -1,4 +1,4 @@
-Original article: **[La Famiglia è Tutto, o Che Fortuna // Legacy, Vitality, and the Art of Living](https://wildepistemology.substack.com/p/la-famiglia-e-tutto)** 
+**Original article: [La Famiglia è Tutto, o Che Fortuna](https://wildepistemology.substack.com/p/la-famiglia-e-tutto)** // Legacy, Vitality, and the Art of Living
 
 #
 
