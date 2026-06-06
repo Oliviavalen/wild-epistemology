@@ -42,7 +42,7 @@ There's no need to buy anything if all you're interested in is open-world discov
 
 **3. [DONOT-README](https://github.com/Oliviavalen/wild-epistemology/blob/main/1-start%20here/DONOT-README.md)**
 * only read once you've found all the links through exploring.
-* **Begin your search at: [1-Table-of-Contents]()**
+* **Begin your search at: [1-Table-of-Contents](https://github.com/Oliviavalen/wild-epistemology/blob/main/articles/1-table-of-contents.md)**
 
 
 
