@@ -22,15 +22,15 @@ Published articles are available on Substack. Repo collection features working d
 ### Free for Everyone Articles
 Links appear in chronological order by publishing date
 
-*   **[The Siren and the Dominatrix](https://tinyurl.com/4jvbhzcx)** — Substack
+*   **[The Siren and the Dominatrix](https://wildepistemology.substack.com/p/the-siren-and-the-dominatrix)** — Substack
 *   **[Siren-and-Dominatrix](siren-and-dominatrix.md)** 
-*   **[The Tortoise AND the Hare](https://tinyurl.com/sxs83dr9)** — Substack
+*   **[The Tortoise AND the Hare](https://wildepistemology.substack.com/p/the-tortoise-and-the-hare)** — Substack
 *   **[Tortoise-AND-Hare](tortoise-AND-hare.md)**
-*   **[Down the Rabbit Hole](https://tinyurl.com/45hphkvk)** — Substack
+*   **[Down the Rabbit Hole](https://wildepistemology.substack.com/p/down-the-rabbit-hole)** — Substack
 *   **[Down-the-Rabbit-Hole](down-rabbit-hole.md)**
-*   **[La Famiglia è Tutto, o Che Fortuna](https://tinyurl.com/3upvbbuk)** — Substack
+*   **[La Famiglia è Tutto, o Che Fortuna](https://wildepistemology.substack.com/p/la-famiglia-e-tutto)** — Substack
 *   **[Lucky-Italy](lucky-italy.md)**
-*   **[Sacrifice](https://tinyurl.com/44zrvajr)** — Substack
+*   **[Sacrifice](https://wildepistemology.substack.com/p/sacrifice)** — Substack
 *   **[Sacrifice](sacrifice.md)**
 
 
