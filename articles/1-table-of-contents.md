@@ -41,13 +41,13 @@ Links appear in chronological order by publishing date
 
 
 ### Founding Plan / Antechamber
-(NOTE: I had originally intended on making these articles free to GH users, but due to the explicit nature of the subject and in order to maintain quality, they remain available only to paying members.)
+(NOTE: I had originally intended to make these articles free to GH users, but due to the explicit nature of the subject and in order to maintain quality, they remain available only to paying members.)
 
-*   **[The Psychology of Power Exchange](https://tinyurl.com/42x66yfd)** — Substack
+*   **[The Psychology of Power Exchange](https://tinyurl.com/bdhy992c)** — Substack
 *   **[Psychology-of-Power-Exchange](psych-of-pe.md)**
-*   **[Integrating Dynamics into Legacy-Oriented Lifestyles](https://tinyurl.com/yc6cxbr4)** — Substack
+*   **[Integrating Dynamics into Legacy-Oriented Lifestyles](https://tinyurl.com/mrxnd66k)** — Substack
 *   **[Integrating-Legacy-into-Power-Exchange](legacy-pe.md)**
-*   **[The Itinerary](https://tinyurl.com/52sb24pz)** — Substack
+*   **[The Itinerary](https://tinyurl.com/mpn9pa4n)** — Substack
 *   **[The-Itinerary](the-itinerary.md)**
 *   
 
