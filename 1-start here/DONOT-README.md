@@ -5,7 +5,7 @@
 
 **2. [Substack](https://wildepistemology.substack.com/):** The Voice
 
-**3. [Buy Me a Coffee](buymeacoffee.com/oliviavalen)** The Heart
+**3. [Buy Me a Coffee](https://buymeacoffee.com/oliviavalen)** The Heart
 
 **4. [DITW Website](https://dominatrixinthewild.de)** The Face
 
