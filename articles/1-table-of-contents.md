@@ -1,9 +1,9 @@
- # Olivia Ambra Valen Publication
+ # Wild Epistemology Publication
 Synthesizing separate disciplines into a clear blueprint for practical application.
 
 I don't write for theory, to boast intelligence, or for the wise wizard effect. I view the human mind like an engineer looks at a computer system — as a stack of layered software. Every thought is just the top layer. To troubleshoot life, you have to peel back that top thought to reveal the hidden layers of beliefs and logic beneath it. By tracing these layers to their root source, you gain total clarity on your perspective. From there, you can rewrite your mental code, optimize the system, and design your external reality exactly how you want it.
 
-And as above, so below; as within, so without; as the macro, so the micro — I naturally see and simultaneously process everything in the universe this way. It's as natural and as unavoidable as breathing for me, and I love it. I also love building multi-layered experiences that seem disconnected at first glance, but if you look deep enough, you can see that they're clearly all connected. These experiences are my playful way of sharing the multivierse inside my head for others to find and enjoy. It's how you ended up here.
+And as above, so below; as within, so without; as the macro, so the micro — I naturally see and simultaneously process everything in the universe this way. It's as natural and unavoidable as breathing for me; and I love it. I also love building multi-layered experiences that seem disconnected at first glance, but if you look deep enough, you can see that they're clearly all connected. These experiences are my playful way of sharing the multivierse inside my head for others to find and enjoy. It's how you ended up here.
 
 Because my computer is my mind, I do this 24/7/365. I'm always connecting each new piece of information to something I saw, thought or did 30 years ago, or yesterday at lunch.
 
@@ -17,7 +17,7 @@ My design is the same for everyone: have fun exploring, expand your mind, use pr
 
 
 ## 📁 Article Index
-Published articles are available on Substack. Repo collection features working drafts, and raw thoughts and notes that are not included in final publication. Work in progress.
+Published articles are available on Substack. Repo collection features working drafts, and raw thoughts and notes that are not included in final publication.
 
 ### Free for Everyone Articles
 Links appear in chronological order by publishing date
