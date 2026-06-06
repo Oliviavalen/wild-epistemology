@@ -24,7 +24,7 @@ Links appear in chronological order by publishing date
 
 *   **[The Siren and the Dominatrix](https://tinyurl.com/4jvbhzcx)** — Substack
 *   **[Siren-and-Dominatrix](siren-and-dominatrix.md)** 
-*   **[The Tortoise AND the Hare](hhttps://tinyurl.com/sxs83dr9)** — Substack
+*   **[The Tortoise AND the Hare](https://tinyurl.com/sxs83dr9)** — Substack
 *   **[Tortoise-AND-Hare](tortoise-AND-hare.md)**
 *   **[Down the Rabbit Hole](https://tinyurl.com/45hphkvk)** — Substack
 *   **[Down-the-Rabbit-Hole](down-rabbit-hole.md)**
