@@ -35,7 +35,7 @@ There's no need to buy anything if all you're interested in is open-world discov
 * list of features and benefits available exclusively to GH users
 * list of currently available links to find 
 
-**2. [Connect-the-Dots](connect-the-dots.md)**
+**2. [Connect-the-Dots](https://github.com/Oliviavalen/wild-epistemology/blob/main/1-start%20here/connect-the-dots.md)**
 * 1st main quest
 * list of questions to help you navigate the OAV world
 * reward
