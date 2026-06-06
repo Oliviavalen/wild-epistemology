@@ -1,5 +1,5 @@
 # DO NOT READ ME — LINK HUB MASTER LIST
-**This is the ONLY place all my links can be found together. Only use to check your work.**  
+**This is the only place all my links can be found together. Only use to check your work.**  
 
 **1. [GitHub](https://github.com/Oliviavalen/wild-epistemology):** The Mind
 
