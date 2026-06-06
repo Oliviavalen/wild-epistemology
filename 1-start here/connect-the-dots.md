@@ -1,8 +1,11 @@
-# :zap: Main Quest: Connect the Dots
+# Connect the Dots
+
+#### :zap: Main Quest: Connect the Dots
+#### :closed_lock_with_key: Reward: TBD
 1. Use these questions as a framework for exploration. They will help you connect the dots across Liv's work for yourself.
 2. Show Livia how to communicate through the repo by sending her answers
 3. Collect reward
-
+#
 ### Guiding Questions (updated 20260604):
 
 1. What disciplines does Olivia consider connected that most people keep separate?
@@ -21,13 +24,13 @@
 14. What would else would I like to see here on GitHub, or any of the other platforms?
 
 #
-### Extra Questions (updated 20260604):
+### Extra Questions (updated 20260605):
 
-1. Based on available information, what are some of Livia's hobbies and interests?
+1. 
 2. 
 
 
-# :closed_lock_with_key: Reward:
+
 
 # 
 
