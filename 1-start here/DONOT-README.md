@@ -3,7 +3,7 @@
 
 **1. [GitHub](https://github.com/Oliviavalen/wild-epistemology):** The Mind
 
-**2. [Substack](https://dominatrixinthewild.substack.com):** The Voice
+**2. [Substack](https://wildepistemology.substack.com/):** The Voice
 
 **3. [Buy Me a Coffee](buymeacoffee.com/oliviavalen)** The Heart
 
