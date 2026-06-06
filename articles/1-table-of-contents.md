@@ -40,14 +40,14 @@ Links appear in chronological order by publishing date
 
 
 
-### Founding Plan / Antechamber
+### Founding Plan / The Unabridged Identity
 (NOTE: I had originally intended to make these articles free to GH users, but due to the explicit nature of the subject and in order to maintain quality, they remain available only to paying members.)
 
-*   **[The Psychology of Power Exchange](https://tinyurl.com/bdhy992c)** — Substack
+*   **[The Psychology of Power Exchange](https://wildepistemology.substack.com/p/the-psychology-of-power-exchange)** — Substack
 *   **[Psychology-of-Power-Exchange](psych-of-pe.md)**
-*   **[Integrating Dynamics into Legacy-Oriented Lifestyles](https://tinyurl.com/mrxnd66k)** — Substack
+*   **[Integrating Dynamics into Legacy-Oriented Lifestyles](https://wildepistemology.substack.com/p/legacy-oriented-power-exchange)** — Substack
 *   **[Integrating-Legacy-into-Power-Exchange](legacy-pe.md)**
-*   **[The Itinerary](https://tinyurl.com/mpn9pa4n)** — Substack
+*   **[The Itinerary](https://wildepistemology.substack.com/p/the-itinerary)** — Substack
 *   **[The-Itinerary](the-itinerary.md)**
 *   
 
