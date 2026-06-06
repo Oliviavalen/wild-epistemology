@@ -40,9 +40,9 @@ There's no need to buy anything if all you're interested in is open-world discov
 * list of questions to help you navigate the OAV world
 * reward
 
-**3. [DONOT-README](DONOT-README.md)**
-* ONLY read once you've found all the links through exploring.
-* **Begin your search at: [1-Table-of-Contents](1-table-of-contents.md)**
+**3. [DONOT-README](https://github.com/Oliviavalen/wild-epistemology/blob/main/1-start%20here/DONOT-README.md)**
+* only read once you've found all the links through exploring.
+* **Begin your search at: [1-Table-of-Contents]()**
 
 
 
