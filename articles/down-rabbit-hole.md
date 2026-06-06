@@ -1,4 +1,4 @@
-Original article: **[Down the Rabbit Hole // The Many Ways Opportunity Presents Itself](https://wildepistemology.substack.com/p/down-the-rabbit-hole)** 
+**Original article: [Down the Rabbit Hole](https://wildepistemology.substack.com/p/down-the-rabbit-hole)** // The Many Ways Opportunity Presents Itself
 
 #
 
