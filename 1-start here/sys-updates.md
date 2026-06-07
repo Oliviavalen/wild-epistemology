@@ -7,6 +7,7 @@
 3. Olivia substack bio new profile description: WE: Disrupt the Mind → Broaden the Perspective → Embody the Unabridged Identity // MM: Heritage roots meets enchanted forest crafting // DITW: psychological concierge / identity architecture
 4. Fixed all the broken links in the articles folder
 5. Fixed all the broken links in the publication articles
+6. Think I finally got all my links updated in all my articles and files
 
 #
 **20260605**
