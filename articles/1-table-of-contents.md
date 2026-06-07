@@ -35,13 +35,13 @@ Links appear in chronological order by publishing date
 
 
 ### Free for Free Subscribers 
-*   **The King Under the Mountain** — Substack
-*   **[King-Under-Mountain](king-under-mountain.md)** — Substack
+*   **[The King in the Mountain](https://wildepistemology.substack.com/p/the-king-under-the-mountain)** — Substack
+*   **[King-Under-Mountain](king-under-mountain.md)** 
 
 
 
 ### Founding Plan / The Unabridged Identity
-(NOTE: I had originally intended to make these articles free to GH users, but due to the explicit nature of the subject and in order to maintain quality, they remain available only to paying members.)
+(NOTE: I had originally intended to make these articles free to GH users. For a variety of reasons, however, they remain available only to paying members.)
 
 *   **[The Psychology of Power Exchange](https://wildepistemology.substack.com/p/the-psychology-of-power-exchange)** — Substack
 *   **[Psychology-of-Power-Exchange](psych-of-pe.md)**
