@@ -17,8 +17,7 @@
 6. What questions is she repeatedly trying to answer, no matter the topic?
 7. What does she seem to really enjoy?
 8. Why is she creating all this?
-
-   
+---   
 9. Which ideas resonate with me  most strongly?
 10. Which concepts challenge me?
 11. Which concepts do I challenge?
