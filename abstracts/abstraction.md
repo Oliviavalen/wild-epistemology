@@ -134,3 +134,8 @@ System 1 thinking/vault/subconscious/Moses<br>
 System 2 thinking/the destroyed commonwealth/misaligned conscious/misaligned ego/pharoah, until the savior returns power and clean water (right thinking to your beliefs).
 
 #
+Back to *All Souls*<br>
+Philippe de Clermont and the other creators of the Congregation established the rule because they recognized how powerful daemons could be if they organized. Because daemons are natural movers and shakers who excel at politics, finance, and radical innovation, the ruling powers feared that a unified daemon community would easily organize revolts, manipulate human societies, and challenge vampire and witch dominance. **Isolation is the exact reason why daemons now suffer from so much mental instability. Without a community or shared network to help them understand their unique minds, their intense genius has nowhere to go and frequently collapses into madness and depression.**<br>
+—like how we isolate and attack anyone who thinks differently. Programming the mass to tear down the individual instead of raise the collective up to new levels. Even in an age of social media, it's only "cool" to go against the grain so long as you're still fitting into another given box or label.
+
+#
