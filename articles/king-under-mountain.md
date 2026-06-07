@@ -1,4 +1,4 @@
-**Original Article:** [Substack The King in the Mountain](https://wildepistemology.substack.com/p/the-king-under-the-mountain) // What Happens After You've Won
+**Original Article:** [The King in the Mountain](https://wildepistemology.substack.com/p/the-king-under-the-mountain) // What Happens After You've Won
 #
 
 
