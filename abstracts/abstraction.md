@@ -95,10 +95,10 @@ Examples of fake dark: some taboos; deconstructing; question anything; stay marr
 **Not:** what did the author mean?<br>
 **But:** What interpretation creates the most leverage in my own life?
 
-**Not:** what universal pattern exists beneath all these myths?
+**Not:** what universal pattern exists beneath all these myths?<br>
 **But:** how can I reorganize these myths into a practical operating system for understanding myself?
 
-**Not:** is this true or is this false?
+**Not:** is this true or is this false?<br>
 **But:** how canI make it true in a way that makes it work for me? How can I make it false in a way that makes it work for me?
 
 Assume it's true and rearrange your mind/beliefs to make it true.
@@ -117,5 +117,20 @@ effortless, no intention needed<br>
 Exercise gives you endorphins, Endorphins make you happy. Happy people just don't shoot their husbands—they just don't.
 
 Also the difference between running a script that natively compiles versus trying to force an incompatible software patch. Excitement is the system running smoothly on its own code.
+
+#
+
+The lone wanderer coming out of a vault after 300 years underground is like when someone comes online for the first time and realizes the world is so much bigger than they ever imagined. It’s tough out there. Only the most determined survive.
+
+If you decide not to leave the vault, you’ll eventually be your own undoing. Spores, raiders, science experiments, society, culture…they all tell you how to live, where to live, and program your mind to think however they want you to think. It’ll be your death.
+—it’s okay for regular vault dwellers. They need that type of system. They need linear order, religion, government, entertainment, and safety bumpers. Those things are good for them. If they didn’t have those things containing them, they’d run amok and cause total chaos for those who see clearly. They can’t wear the glasses.
+
+But not you. You’ve come here to chew bubblegum and kick ass. And you’re all out of bubblegum. 
+
+The lone wanderer coming out of a vault after 300 years underground is like when one thought of truth/curiosity/joy/love/purpose/desire/resolve surfaces from your subconscious depths to your conscious mind because it will no longer be buried. It’s time to follow that thought. Let it lead. Because that thought is the main character that will lead the people (your thoughts) out of darkness.
+—if you don’t let it lead, you’re Vault Tech.
+
+System 1 thinking/vault/subconscious/Moses<br>
+System 2 thinking/the destroyed commonwealth/misaligned conscious/misaligned ego/pharoah, until the savior returns power and clean water (right thinking to your beliefs).
 
 #
