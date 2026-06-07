@@ -2,6 +2,8 @@
 
 **The only way to arrive here is by finding a clue. Thanks for following it!**
 
+[Actual footage of me leaving clues.](https://www.tiktok.com/t/ZP8skTaB7/)
+
 I'm not going to introduce myself. That's your mystery to unravel.
 
 Instead, I'll tell you that you've discovered a multilayered world and this place is essentially my SSOT. Or a secret Mario level. It has consolidated pieces that no one else gets. More play, more personality, more candor, and more context. I can post with confidence knowing that those who find it probably think like me and will appreciate the discovery process. Maybe you'll even help me expand it.
@@ -25,8 +27,6 @@ I'm still getting the hang of pull requests and figuring out how to open up a fi
 My mind has always been my playground, and now I’m inviting a few others to join. It’s designed to challenge your way of thinking about the world, hopefully optimize your personal life, create meaningful connections, and have fun. Like *Matrix* play?
 
 Is the description a bit abstract? Yes. But if anyone can process the abstract, it’s you.
-
-
 
 #
 ### Orientation // How to Use the Repo 
