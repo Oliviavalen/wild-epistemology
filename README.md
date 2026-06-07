@@ -2,7 +2,7 @@
 
 **The only way to arrive here is by finding a clue. Thanks for following it!**
 
-I'm not going to introduce myself. That's your mystery to unravel. I'm not giving you any clues about lies ahead either.
+I'm not going to introduce myself. That's your mystery to unravel.
 
 Instead, I'll tell you that you've discovered a multilayered world and this place is essentially my SSOT. Or a secret Mario level. It has consolidated pieces that no one else gets. More play, more personality, more candor, and more context. I can post with confidence knowing that those who find it probably think like me and will appreciate the discovery process. Maybe you'll even help me expand it.
 
