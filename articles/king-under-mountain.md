@@ -1,100 +1,30 @@
-Substack The King in the Mountain // The Sleeping King (not yet published)
-
-**What Most People See**
-
-The king under the mountain is never an ordinary ruler. He is the one who once gathered a fractured people, restored order, or ushered in a golden age — and whose story ends not with death, but with disappearance. In the old tales, he withdraws into a mountain, a cave, or an island beyond the world. Not as a corpse, but as a sleeper. His body is preserved, his warriors wait beside him, and his kingdom enters a kind of mythic pause.
-His absence explains the world’s decline; his return promises its renewal. This is why Arthur rests in Avalon, why Barbarossa waits in Kyffhäuser, why Fionn sleeps beneath the hills. Each embodies the same truth: the world’s broken order is not final — only unfinished.
-These stories aren’t just old legends; they’re mirrors. And psychology has its own language for the same pattern.
+**Original Article:** [Substack The King in the Mountain](https://wildepistemology.substack.com/p/the-king-under-the-mountain) // What Happens After You've Won
 #
-**Carl Jung**
 
-In Jungian terms, the king under the mountain isn’t just a folklore motif; it’s a psychic map. The Self is the organizing center of the psyche — the source of wholeness, meaning, and inner authority. The sleeping king is a mythic projection of that Self.
-•	He once unified the kingdom → the psyche once felt whole
-•	He withdraws into the mountain → the Self becomes inaccessible, buried in the unconscious
-•	The land falls into chaos → the ego loses contact with its inner center
-•	He will return → the Self re emerges during crisis, transformation, or individuation
-Campbell sees the same figure through a different lens — not as a psychic structure, but as a mythic rhythm.
+
+#### EDITED OUT & Thought-processing:
+
+Caves symbolize the deep interior of consciousness—the hidden realm where beliefs, memories, imagination, and spiritual potential reside. They represent the inner place of transformation, where old patterns die and new awareness is born. Metaphysically, Golgotha, the "place of the skull," signifies this inward chamber of the mind, where false identities are surrendered, truth is realized, and a higher expression of life emerges. The resurrection of Jesus Christ is an allegory of this psychological process, depicting the awakening of the true self from the limitations of a former state of consciousness.
+
+Mountains symbolize elevated states of consciousness and spiritual realization. Rising above the valleys of ordinary thought and perception, they represent the ascent toward greater awareness, insight, and communion with the divine. Metaphysically, the mountaintop signifies a higher vantage point from which truth is more clearly perceived and inner transformation is consciously embraced.
+
+What I see:
+The motif is a map. But to read a map
+Once we recognize the pattern, we can see how it applies to our own lives. It becomes a psychological map, or Link’s Lens of Truth, revealing hidden truths
+
 #
-**Joseph Campbell**
+King Arthur (Britain): Famously resting in Avalon or deep within Richmond Castle, waiting to save Britain. Frederick Barbarossa (Germany): Sleeping in the Kyffhäuser mountain; his red beard supposedly grows through a marble table. Charlemagne (France/Germany): Rested in the Untersberg mountain near Salzburg, waiting to restore his empire. Constantine XI Palaiologos (Byzantine Empire): Known as the "Marble King," turned to stone by an angel under the Golden Gate of Constantinople. King Wenceslaus (Czechia): Sleeping inside Blaník mountain with his army, ready to wake during the country's worst tragedy. King Matjaž / King Matthias (Slovenia/Hungary): Sleeping under Mount Peca; his beard wraps around a table multiple times. King Marko (Balkans): The Serbian prince sleeps in a cave, his sword slowly emerging from a rock as his horse grazes. Fionn mac Cumhaill (Ireland): The giant warrior sleeps inside a cave surrounded by his Fianna warriors, awaiting a specific trumpet blast. Ogier the Dane (Denmark): Holger Danske sits in Kronborg Castle, beard grown into the floor, waiting to defend Denmark.
 
-For Campbell, the sleeping king is the hero whose life giving power has withdrawn, and whose eventual return marks the restoration of life, order, and meaning. He is the embodiment of the mythic cycle in pause — the hero whose work is unfinished because the world is not yet ready for his reappearance.
-•	He once unified the kingdom → the hero brought harmony and vitality
-•	He withdraws into the otherworld → his power recedes into reserve
-•	The land decays → the community loses contact with the renewing force
-•	He will return → the hero reappears when the age is prepared
-But myths don’t survive merely because they’re powerful. They survive because they describe us — and that’s what makes them powerful.
-# 
-**Olivia Ambra Valen**
-
-**The Every Man Story**
-
-I see what they see, but I also see something more immediately accessible.
-We each decide what we want to accomplish in life, or it is decided for us. Either way, we set out boldly, as kings full of fire, to achieve our dreams and ambitions. And then — often far sooner than we expect — we accomplish them. We “make it.” We reach the golden age we imagined for ourselves. And then we don’t know what comes next.
-
-The inner drive quiets. Not because it has died, but because its mission is complete. We stop conquering and start living on autopilot. For many, this manifests as a mid life crisis. We keep achieving out of habit, but the accomplishments lose their thrill. Everything becomes another trophy, another recognition, but none of it has meaning anymore. It’s like biting into a golden, buttery pie only to find it hollow inside.
-The first sign of slumber is subtle — a small, unobtrusive thought: “I wonder if this is right…” It’s so quiet we overlook it. That’s the “still, small voice” scripture speaks of. It never shouts. It waits. We have free will, so we can embrace it or ignore it. Most of us ignore it because it’s so easy to set aside our own inner fulfillment, especially when our other responsibilities are much more concrete.
-
-We see the world’s patterns with perfect clarity. It’s easy to see them not just in myth but also in the everyday realities of life, such as investing and markets. We can look at a single piece of global news and know exactly where to move money and what to invest in. Australia floods? Buy cotton. A war breaks out? Oil, commodities, defense contractors, and maybe a nonprofit. China goes into a pandemic lockdown? Invest in commodities and anything tied to supply and manufacturing, and start a business or two that’s positioned to take off at the right moment so you’re ahead of the curve.
-
-Those patterns are easy because they’re external, measurable, and familiar. But the internal signals — the ones pointing toward joy, vitality, and meaning — those we ignore because they feel unimportant or intangible.
-So the king, having fulfilled his mission and knowing not what else to do, goes to sleep, ready to return when he’s most needed again.
 #
-**It’s All in the Symbolism**
+The Seven Sleepers of Ephesus (Christianity/Islam): Young men who hid in a cave to escape Roman persecution and slept for centuries. Al-Khidr / The Hidden Imams (Islam): Various Shia traditions feature a hidden leader (like the Mahdi) who is occulted from the world until the end times. Muchukunda (Hinduism): A king who fought for the gods, then slept in a cave; his gaze incinerated the demon Kalayavana upon waking. Vainamoinen (Finnish Mythology): The wise hero sailed away to the upper regions of the sky but promised to return when his people needed him. Cronus / Saturn (Greek/Roman Mythology): Placed in a deep, magical sleep by Zeus on the blissful island of Ogygia or Britain.
 
-Once again, my goal is to give you just enough perspective to understand the practical application of the motif.
-
-**The King**
-
-Male figures represent the masculine energy of doing — the drive to act, build, direct, and move life forward. The king state-of-being is the expression of that energy when it’s organized, purposeful, and aligned.
-When you were moving with purpose and certainty, you were in your king state. When that fire fades and you slip into autopilot, the king goes to sleep. This is when you start to feel empty, unfulfilled, or disconnected from who you once were, but that version of you isn’t gone. He’s dormant. The king waits in the inner chamber, ready to rise the moment you set your mind to it.
-
-**The Beard**
-
-Hair symbolizes vitality. This is why Nazarites didn’t cut their hair, why Samson’s strength was tied to his, and why warriors across cultures only cut their hair in defeat. Hair is the outward sign of inner strength and vitality. When the story includes a king’s beard that must grow around a stone table a certain number of times before he can awaken, it means your personal vitality is fusing with higher truths. Stones symbolize Universal Truth Principles. Awakening happens when that binding is complete.
-
-The king’s beard continues to grow even when he’s asleep. Even when you feel lifeless, you are still developing beneath the surface. Dormant plants in winter keep growing through their roots. Roots are hair, and they continue their work even when nothing above ground is alive. Myth echoes the same pattern: the descent into the underworld is a period of rest and replenishment before rebirth. The significance of the beard is to provide proof that the king is not dead; he is transforming.
-
-**The Mountain, Cave, or Sealed Chamber**
-
-Whether the king rests beneath a mountain, within a cave, or in a sealed great hall, the symbolism is fundamentally the same. Each represents the hidden depths of consciousness, where the sovereign lies dormant while a process of inner transformation unfolds.
-The mountain points to an exalted state. The cave points to the interior world. The sealed hall or chamber points to the protected inner sanctum, which simply means nothing can harm this part of you — it is safely sealed away. The prophecy of the king's return promises the eventual emergence of a renewed state of being, rising above former limitations into a fuller realization of truth, power, and spiritual awareness.
-
-**The King’s Men**
-
-If the king is sealed away with his knights, soldiers, or court, this refers to all your other thoughts, ideas, beliefs, and potential. When the king is elevated, everything connected to him is elevated as well. When one part of you levels up, so does the rest of you.
 #
-**The Practical Meaning**
+Jesus is known as a king and both he and Adam go sleep/are buried in Golgotha which means "in the skull" which is why, mythologically speaking, all those other great men were placed in mountain/caves/sealed great halls, etc, because those symbolize the same type of resting place. Whether you call it death (which most understand to be temporary anyway), sleeping, or whatever, it's the same concept. And a lot of stories say that Adam is/was sleeping, until the savior came.
 
-*Symbolism is beautiful, but you don’t need it to understand the story.*
+And Jesus, unlike all the other kings and heroes, did wake up/rise. I think all the others are psychological examples or cautions. You (the individual) once did great things, then that masculine doing energy "fell asleep" because you lost your purpose. People usually accomplish everything they want to accomplish much earlier in life than they'd expect to, so by the time mid-life hits (around that time), they're the "people" in the story hoping for the once and future king to return--hoping for renewed purpose and vitality (the beard hair) to return. Only the problem with the once and future king is he only ever exists in the past and future--it's written into the motif that he never actually wakes up. So you have to use Jesus as the example of the exception to the rule, to "resurrect" yourself. Jesus was covered in that ointment/perfume before death (metaphysically--nerve fluid) which symbolizes vitality and physiologically/literally represents the healing of the nervous system in modern times, and that's how he was able to "wake up" or "resurrect" after death when no other hero of the motif has been able to. So if you want to become king in the present (not the past and hopeful future) you also need to flood your nervous system with thoughts/feelings/beliefs of intense joy, love, lights (all the things which Jesus/'fruit of spirit" personify).
 
-The king is you. You were in your golden age while you were actively building your life. Once you fulfilled your primary ambitions, you lost your drive and stopped ruling from the king state-of-being. You’ve just been going through the motions ever since. You will awaken once more if and when you find reason for meaning, purpose, vitality, or joy. Alternatively, something negative can cause your return: an illness, accident, or major loss of some sort, like loss of a loved one, resources, or status.
+Anyway, if you look at it from a broader perspective, they're all the same. It's only human labels and barriers that make everything seem different.
 
-So you must either summon your inner resolve with intention so you can enjoy the freedom of all the good things life has to offer; or wait for something bad to happen where you’re forced back onto the throne to restore order in your life; or worse, remain asleep and indifferent for the rest of your day.
-
-The motif shows us that the Once and Future King never actually returns. He exists only as a legend of the distant past or as unfulfilled hope for the future. Except once.
-
-That’s because those guys didn’t have the blueprint. You do.
 #
-NOTE:
 
-This next part may feel like a jump because I am usually emphasizing the humanities, social sciences, and the arts; tiptoeing around the spiritual and metaphysical; and am not yet incorporating a myriad of other topics such as science, medicine, or tech.
 
-I tried to include a more comprehensive review here, wrapped up in a neat little package with a pretty bow, but the topic is far too dense. All you need to know for now is this: hair is the proof of vitality on the outside, and the nervous system—specifically, nerve fluid—is the proof on the inside. This is an overlap of symbolism, metaphysics, science, and medicine.
-#
-**The Exception to the Rule: The Biochemical Resurrection**
-
-Among all the buried kings of human history, Jesus is the exception to the rule. Unlike Arthur or Barbarossa, he does not remain a passive inhabitant of the cave. He actively wakes up, breaks the seal of the tomb, and rises.
-
-How? The answer is hidden in the physiological and metaphysical science of the nervous system.
-Before his descent into the "skull" (Golgotha), Jesus is heavily anointed with precious, high-frequency oils and perfumes. Metaphysically and physiologically, this ointment represents nerve fluid—the lightning of human vitality.
-
-In modern terms, this is a literal map for healing and electrifying the nervous system. The traditional kings remain trapped in stone because they are ruled by the cold, calcified ego. The Christ archetype resurrects because it floods the biological nervous system with the highest-vibrational energies available to human consciousness: intense joy, unconditional love, and radiant light — "fruits of the spirit".
-#
-**From Passive Hope to Present Sovereignty**
-
-If you want to become the king of your life once more, you must purposely replicate the exception.
-You must summon your inner resolve, your will, and decide to do things that will flood your neural pathways and spinal column with the regenerative fluids of joy and purpose. 
-
-The sleeping king is a warning about what happens when we fulfill our original purpose and don’t adapt a new life purpose. Resurrection is the conscious, physiological choice to wake up right now. But not to rule an empire — you’ve already done that. What does the good king get to do when he willingly gives up his crown? He gets to go out into the world as a commoner, only 
-
-(last edited 20260602)
