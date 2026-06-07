@@ -1,5 +1,8 @@
 # Abstraction Intro
 
+**Warning:** advanced pattern-recognition aheda. Proceed at your own risk.<br>
+Each thought train is divided by a line.
+
 1. [Abstraction](https://github.com/Oliviavalen/wild-epistemology/blob/main/stuff/abstraction.md#abstraction)
 
 
@@ -44,10 +47,45 @@ Ever since I discovered the existence of GitHub—which was about four days ago�
 
 So I knew I wanted a place where I could write down all my thoughts without having to refine and organize them for other people. Just raw mental data processing available for anyone who dares brave the labyrinth of my mind.
 
-My son mentioned the term abstraction and I had my file title.
+**My son mentioned the term *abstraction* and I had my title.**
 
 # ABSTRACTION
 
-In S1E2 Penny says he has all these voices in his head but there's this one voice that isn't noise—unlike the others, this one is always clear. It never does him wrong or leads him astray so he trusts it.
-
+In S1E2 Penny says he has all these voices in his head but there's this one voice that isn't noise—unlike the others, this one is always clear. It never does him wrong or leads him astray so he trusts it.<br>
 — a "daemon" example. But instead of being a cautionary tale, it tells us what happens when you make peace with and learn how to trust the parts of yourself that make you feel like an outcast. You're not mad; it's your higher/deeper/inner/god/still, quiet voice trying to nudge you back onto the right path.
+#
+The Congregation, fearing the enormous power and capabilities of the daemons, passed a law that prohibited something more than two daemons to interact with each other, whether in-person or online. Punishable by death, I think. Been in place for a thousand years or something like that.
+
+Most people see it as an allegory for racial segregation. But that doesn’t help me improve my life so I reorganize it in a way that makes it useful for me.
+
+Whenever there’s a bad king in a story, that’s an ego that’s out of alignment with universal principles. A bad king means the people and the kingdom (every aspect off your inner being and outer world) suffer because of the tyrant ego.
+
+The Congregation is the same thing—the bad king, the misaligned ego. He rules your world with an iron fist and attacks any Truth thoughts that cross your mind because he’s afraid of losing power. Your conscious mind can’t comprehend what it can’t experience with your five basic senses. So, out of terror, it fights every life potential thought that crosses your mind/his kingdom.
+
+**You:** I’m finally getting my life together!<br>
+**Also you:** Remember all those times I failed?
+
+**You:** I wish I could find happiness<br>
+**Also you:** I don’t deserve it. Not a luxury I can have.
+
+**You:** I can do anything!<br>
+**Also you:** Except for all the things I can’t do.
+
+**You:** All I want is one amazing friendship.<br>
+**Also you:** I lost that right when I burned all my bridges to get to where I am; no one really likes me for me; this is my life.
+
+
+It’s not about literal, cultural segregation—it’s about the segregation of life-affirming beliefs cut off from your subconscious/unconscious. You’re cut off from life because of your negative beliefs. Because the bad king/misaligned ego/conscious mind is terrified of the power of the unknown.
+
+The creatures are dying out in All Souls. You’re dying out (giving up, resigning, etc). Turns out that the prejudice against, and fear of the daemons—which led to their hostile treatment (like when you really want something and then hate and judge someone else for having that which you want)—is the reason that creatures/magic is dying out, and why daemons were growing increasingly dysfunctional. The combination of their DNA with other creatures (cross-species breeding) was the key to returning magic back to the world.
+
+Which means that the daemons/dark/alienating thoughts/nature/sides shouldn’t be condemned; they should be acknowledged and integrated for the benefit of your mind, body, soul, and lifestyle.
+
+Because if you’re afraid of part of your nature— that’s fear. And if you have fear you know not God. God isn’t afraid of anything; he’s God. Which means it’s not your divine nature or God-voice that’s afraid of the “dark” thought, it’s an actual dark thought.
+
+And what’s darkness afraid of? Light and love. Which means your “dark” thought is actually a light/truth/life-affirming thought that should be embraced. So the light is hidden in the dark (from your POV), which is why occult means hidden and is all about finding what’s hidden in the dark. Truth is hidden in the dark if you’re not BFFs with it. Alternatively, even Satan can disguise himself as light—which is why you think light is light and dark is dark, when really it’s the opposite.
+
+Examples of fake light: positive vibes; so polite, so demure; socially acceptable anything; don’t think negative thoughts; eat healthy; mansion on the lake with woods; perfect lawn, picture-perfect family; conformity
+
+Examples of fake dark: some taboos; deconstructing; question anything; stay married even if you’re miserable; getting emotional;
+#
