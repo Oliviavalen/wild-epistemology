@@ -15,7 +15,9 @@
 
 **7. [Personal Reddit](https://www.reddit.com/u/Glowingthrume)**
 
-**8. [DITW TikTok](https://www.tiktok.com/@dominatrixinthewild)**
+**8. [Personal TikTok](https://www.tiktok.com/@oliviaambravalen)**
+
+**9. [DITW TikTok](https://www.tiktok.com/@dominatrixinthewild)**
 
 
 
