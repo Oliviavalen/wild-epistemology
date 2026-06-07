@@ -1,6 +1,9 @@
 # Abstraction Intro
 
-**Warning:** advanced pattern-recognition aheda. Proceed at your own risk.<br>
+**Warning:** advanced pattern-recognition ahead. Proceed at your own risk.<br>
+This is how I process and solve everything from simple life problems to complex existential crises. It's how I rewire my brain for a more optimized and fulfilling life.<br>
+You've seen the polished articles. This is the source code. No editing. No structure. No attempt to make it make sense to anyone but me. 3/4 of the time I'm locked-in and just following one thought to the next until it reaches its natural conclusion. Tracing the execution path of beliefs and logic until I hit the root cause.
+
 Each thought train is divided by a line.
 
 1. [Abstraction](https://github.com/Oliviavalen/wild-epistemology/blob/main/stuff/abstraction.md#abstraction)
@@ -88,4 +91,31 @@ And what’s darkness afraid of? Light and love. Which means your “dark” tho
 Examples of fake light: positive vibes; so polite, so demure; socially acceptable anything; don’t think negative thoughts; eat healthy; mansion on the lake with woods; perfect lawn, picture-perfect family; conformity
 
 Examples of fake dark: some taboos; deconstructing; question anything; stay married even if you’re miserable; getting emotional;
+#
+**Not:** what did the author mean?<br>
+**But:** What interpretation creates the most leverage in my own life?
+
+**Not:** what universal pattern exists beneath all these myths?
+**But:** how can I reorganize these myths into a practical operating system for understanding myself?
+
+**Not:** is this true or is this false?
+**But:** how canI make it true in a way that makes it work for me? How can I make it false in a way that makes it work for me?
+
+Assume it's true and rearrange your mind/beliefs to make it true.
+
+#
+When you get excited<br>
+you wake up<br>
+neurons fire<br>
+CSF releases<br>
+body heals<br>
+mind heals<br>
+vitality returns<br>
+effortless, no intention needed<br>
+"Intention" / "visualize" —bill of goods being sold
+
+Exercise gives you endorphins, Endorphins make you happy. Happy people just don't shoot their husbands—they just don't.
+
+Also the difference between running a script that natively compiles versus trying to force an incompatible software patch. Excitement is the system running smoothly on its own code.
+
 #
