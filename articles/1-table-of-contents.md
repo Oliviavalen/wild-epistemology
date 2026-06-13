@@ -32,6 +32,8 @@ Links appear in chronological order by publishing date
 *   **[Lucky-Italy](lucky-italy.md)**
 *   **[Sacrifice](https://wildepistemology.substack.com/p/sacrifice)** — Substack
 *   **[Sacrifice](sacrifice.md)**
+*   **[We're Going on an Adventure!](https://wildepistemology.substack.com/p/were-going-on-an-adventure?r=82jhra)** — Substack
+*   **[We're Going on an Adventure!](adventure.md)**
 
 
 ### Free for Free Subscribers 
