@@ -60,3 +60,24 @@ When we’re kids, the story is taught as a historical event. We have countless 
 
 
 
+Refactoring: 
+
+An engineering term that basically means taking a messy, old piece of software code and restructuring its internal architecture without changing its external behavior. You don’t delete the app; you just rewrite the backend code so it stops crashing, stops wasting memory, and runs smoothly.
+
+Olivia’s Reframe: 
+
+You’ve got a bunch of conflicting beliefs and feelings all jumbled up in your head right now. You’re just going to go into your system (head) and upgrade your old beliefs. You’ll still look the same when you’re done but you will feel and operate 100x better. You don’t toss out your beliefs or agonize over past negative experiences; you just change the ones that are no longer working for you so you can stop crashing, stop wasting your brain power, and run your life smoothly.
+
+Easy, right? Of course, right.
+
+
+
+How do We Refactor Our Internal Coding?
+
+By switching the metaphor. (wait for it)
+
+The term “faith deconstruction” holds a tremendous amount of power because the words themselves are overwhelmingly stigmatized.  Religion is heavy, holy, and untouchable. It’s not okay to ask deep, challenging questions—even if your intentions are “good”—and just because you walk away from your faith, doesn’t suddenly give you permission to start asking questions. You may wonder the questions in your head, but very few actually start digging for the answers. Despite your major lifestyle change, it’s still a deeply embedded taboo. 
+
+So we have to work with what we have. 
+
+We have to take it apart but we have to do it 
