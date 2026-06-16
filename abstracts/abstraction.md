@@ -139,3 +139,15 @@ Philippe de Clermont and the other creators of the Congregation established the 
 —like how we isolate and attack anyone who thinks differently. Programming the mass to tear down the individual instead of raise the collective up to new levels. Even in an age of social media, it's only "cool" to go against the grain so long as you're still fitting into another given box or label.
 
 #
+if my mind is programmed for answers<br>
+my neurons are rapidly firing to find them<br>
+which keeps my mind sharp and physical appearance youthful<br>
+but I'm not currently trying to "solve" anything<br>
+so my brain cells aren't firing as normal<br>
+which means i need a new purpose, a new problem to solve
+
+Marketing? marketing myself on Substack and solving that problem?<br>
+God, please fucking no 
+
+#
+
