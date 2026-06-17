@@ -1,3 +1,25 @@
+Original Article: **[Religious Deconstruction Masterclass: Bypassing the Internal Firewall to Reclaim Your Mind](https://wildepistemology.substack.com/publish/posts/detail/202196857?referrer=%2Fpublish%2Fhome)**
+
+#
+Nature abhors a vacuum. You can’t just get rid of the old beliefs without simultaneously replacing them with another. BUT…
+This is also the same as affirm/deny; clean the house and fill it with clean spirits or the old one will come back with 7 friends who are even worse. Which is why you feel like you overcame a certain limiting belief but then out of nowhere you’re suddenly feeling 10x worse than you ever did before you tried to change your belief. Like when you try to rewire your brain from poverty to abundance, you feel good, but after a little while you’re even more aware of how broke you are than you were in the first place, and you find yourself with even more lack.
+…Simply replacing your beliefs often fails because it’s like when your body rejects a transplant. Therefore, the best way is to transform your old belief into a new one. Which is why Jesus turns water into wine instead of materializing it. Metaphysically, water is life; wine is good life. Turn life into good life. The Bible tells us so.
+It’s all that universal fuss about transformation. Turns out there’s something to it.
+So we transform our beliefs into new ones by working with the ones we have. Lead to gold; water to wine.
+Bible says: all scripture is good, God-breathed, and serves multiple purposes.
+The word scripture in Greek, graphē, means: something that is written.
+This means: all written things are good, not just Bible books. All books—everything that is written.
+What else is written? Music, movies, art, plays, letters, legal documents, memes.
+Religion teaches a different meaning of the word “scripture” than what the Bible says. Why Jesus condemns the scribes and Pharisees for not using the keys, but also not giving them to those who want them.
+But if you take religion out of the Bible, the Bible says: everything written down is good, God-breathed, and serves multiple purposes.
+All things written good (valuable), God-breathed (life-affirming because God = life), and serve multiple purposes (entertainment, philosophy, rewiring brain, community, comfort, etc)
+It’s why you can read a book read a book, watch a movie, play a game, or laugh at a meme that makes you suddenly realize you’ve gained some valuable insight that you can use somewhere else in your life
+That’s one belief you’ve already rewired in a matter of 20 seconds.
+
+
+
+
+
 How do We Refactor Our Internal Coding?
 
 By switching the metaphor. (wait for it)
