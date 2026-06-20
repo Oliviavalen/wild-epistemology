@@ -169,6 +169,11 @@ moving onto next chapter b/c this one's one now been finished.<br>
 What do you do next?<br>
 Helping others b/c I said I would.<br>
 **To bring it into the real world, you start doing things that give you those feels.<br>
-Anything that gives you a sense of completion, movement, renewal, helping, new beginnings; *knowing I'm helping others***
+Anything that gives you a sense of completion, movement, renewal, helping, new beginnings; *knowing I'm helping others***<br>
+(Whenever I complete an abstract (thought-train), I feel a sense of completion and fulfillment, which is why mind can relax, which is why my conscious mind can relax, and so can CNS, and the seeds take. Writing articles, finsishing abstracts, solving codes and puzzles, guiding someone to next level; NOT so much reaping process or tangible, "material" results. Don't care about seeing gardens and orchard producing fruit and eating it. Don't care about helping a bunch of people at once b/c it's diluted; I'd rather one person get the deepest value than a 100 people get diluted value. Maybe that will change? I've never cared about material things; they've always just beem there. I expect them to be there. Like I expect to open the front door and see outside. Abstracts are fun because you can solve them. I don't need anyone else to validate my success; it's mine. It's my own. It's...my preciousssssss🧌💍
+
+Rewiring my brain while watching tv isn't even optional for me. For others? Yes. For me? For people like me? Absolutely not. We must process. We must solve. We must find problems to solve. *No blanket treatments. Can I teach that? No one else does...Hmm...* || *Good for us; bad for them.*
+
+Doesn't matter what you solve for the "manifestation" seed to take root.)
 
 #
