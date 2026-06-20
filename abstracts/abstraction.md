@@ -150,4 +150,25 @@ Marketing? marketing myself on Substack and solving that problem?<br>
 God, please fucking no 
 
 #
+You can't fight a ghost b/c a ghost is a memory, or rather, it's formless.<br>
+So you strip it to its fundamentals.<br>
+What is a ghost?<br>
+Energy.<br>
+Once you strip it of its mystique you can understand it and you can bring it into the real world (with form) like Nancy brought Freddy intp real world from her dream.<br>
+The [...]is energy.<br>
+What type of energy?<br>
+**MOVEMENT,** joy? completion??<br>
+Fullfillment<br>
+Finished<br>
+New<br>
+Refreshed (Like 2018 when I first got [...]/**RENEWED/REBORN/FREED/RISING PHOENIX**<br>
+desires=visions=prophecies<br>
+confident<br>
+problem-solving so I can help others by giving them the answers so they don't have to learn the hard way<br>
+moving onto next chapter b/c this one's one now been finished.<br>
+What do you do next?<br>
+Helping others b/c I said I would.<br>
+**To bring it into the real world, you start doing things that give you those feels.<br>
+Anything that gives you a sense of completion, movement, renewal, helping, new beginnings; *knowing I'm helping others***
 
+#
